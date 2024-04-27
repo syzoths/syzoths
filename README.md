@@ -11,5 +11,3 @@
 <p align="center"> ≫ If you wanna talk, shoot me a whisper, or send something on my Guestbook! I'm usually AFK, but I will get back to you as soon as I can </p>
 
 <p align="center"> ≫ More about me on my straw page and rentry </p>
-
- <div align="center"> <img src="https://static.wikia.nocookie.net/fridaynightfunking/images/0/0d/CarmineArt.png/revision/latest?cb=20231101031834"> </div>
