@@ -10,4 +10,6 @@
 
 <p align="center"> ≫ If you wanna talk, shoot me a whisper, or send something on my Guestbook! I'm usually AFK, but I'll get back to you as soon as I can </p>
 
+<p align="center"> ≫ I play on both safe and 18+ </p>
+
 <p align="center"> ≫ More about me on my straw page </p>
