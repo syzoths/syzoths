@@ -1,6 +1,6 @@
  <div align="center"> <img src="https://static.wikia.nocookie.net/fridaynightfunking/images/8/84/Ezgif.com-crop_%2822%29_scaled_5x_minified.gif/revision/latest/scale-to-width/360?cb=20231031232455"> </div>
  <h2 align="center"> Carmine </h2>
- <p align="center"> He/Him | 18 | MLM </p>
+ <p align="center"> He/Him | 18 | MLM + Ace </p>
  
  <div align="center"> <img src="https://static.wikia.nocookie.net/fridaynightfunking/images/f/fe/Carmine_losingicon.png/revision/latest?cb=20231102233743"> </div>
 
