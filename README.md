@@ -5,7 +5,7 @@
  <p align="center"> 
   $\text{\color{lightgrey}{He/Him | 18 | MLM + Ace}}$ </p>
  
- <div align="center"> <img src="https://files.catbox.moe/r39w0s.webp"> </div>
+ <div align="center"> <img src="https://files.catbox.moe/u15h0p.gif"> </div>
 
 <p align="center"> 
   $\text{\color{grey}{≫ Read straw page before interacting please}}$ </p>
