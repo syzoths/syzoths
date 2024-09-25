@@ -1,4 +1,4 @@
- <div align="center"> <img src="https://files.catbox.moe/k02qyy.webp"> </div>
+ <div align="center"> <img src="https://files.catbox.moe/znf4gs.webp"> </div>
  <h2 align="center">
   $\text{\color{grey}{Carmine}}$ </h2>
   
