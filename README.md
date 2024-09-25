@@ -3,7 +3,7 @@
   $\text{\color{grey}{Carmine}}$ </h2>
   
  <p align="center"> 
-  $\text{\color{lightgrey}{He/Him | 18 | MLM + Ace}}$ </p>
+  $\text{\color{lightgrey}{He/Him | 18 | MLM + Aceflux}}$ </p>
  
  <div align="center"> <img src="https://files.catbox.moe/3te8uh.gif"> </div>
 
