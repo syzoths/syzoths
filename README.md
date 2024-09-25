@@ -1,11 +1,11 @@
- <div align="center"> <img src="https://files.catbox.moe/znf4gs.webp"> </div>
+ <div align="center"> <img src="https://files.catbox.moe/gahyp2.webp"> </div>
  <h2 align="center">
   $\text{\color{grey}{Carmine}}$ </h2>
   
  <p align="center"> 
   $\text{\color{lightgrey}{He/Him | 18 | MLM + Ace}}$ </p>
  
- <div align="center"> <img src="https://files.catbox.moe/u15h0p.gif"> </div>
+ <div align="center"> <img src="https://files.catbox.moe/3te8uh.gif"> </div>
 
 <p align="center"> 
   $\text{\color{grey}{≫ Read straw page before interacting please}}$ </p>
