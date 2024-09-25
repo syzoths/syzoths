@@ -19,4 +19,4 @@
 <p align="center"> 
  $\text{\color{lightgrey}{≫ I play on both safe and 18+}}$ </p>
 
- <div align="center"> <img src="https://files.catbox.moe/pfnc3y.png"> </div>
+ <div align="center"> <img src="https://files.catbox.moe/17afft.webp"> </div>
