@@ -1,9 +1,9 @@
  <div align="center"> <img src="https://files.catbox.moe/gahyp2.webp"> </div>
  <h2 align="center">
-  $\text{\color{grey}{Carmine}}$ </h2>
+  $\text{\color{grey}{Carmine / Syzoth}}$ </h2>
   
  <p align="center"> 
-  $\text{\color{lightgrey}{He/Him | 18 | MLM + Aceflux}}$ </p>
+  $\text{\color{lightgrey}{He/Him | 18 | MLM}}$ </p>
  
  <div align="center"> <img src="https://files.catbox.moe/3te8uh.gif"> </div>
 
