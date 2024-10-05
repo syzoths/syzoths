@@ -1,6 +1,6 @@
  <div align="center"> <img src="https://files.catbox.moe/gahyp2.webp"> </div>
  <h2 align="center">
-  $\text{\color{grey}{Carmine / Syzoth}}$ </h2>
+  $\text{\color{grey}{Syzoth}}$ </h2>
   
  <p align="center"> 
   $\text{\color{lightgrey}{He/Him | 18 | MLM}}$ </p>
